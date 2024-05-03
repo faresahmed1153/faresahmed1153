@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/faresahmed1153?tab=repositories](https://github.com/faresahmed1153?tab=repositories)
 
-- 📫 How to reach me **faresahmed3090@gmail.com**
+- 📫 How to reach me **faresahmed.dev@gmail.com**
 
 - 📄 Know about my experiences https://drive.google.com/file/d/1kxLHXKbqr2YycQITlHOfzv1RgBISdWLK/view?usp=drive_link
 <br>
